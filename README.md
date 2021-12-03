@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @JobyTB
+- 👀 I’m interested in Data analytics
+- 🌱 I’m currently learning Data Anaytics for Business Decision making – Durham College, Oshawa, ON
+- 💞️ I’m looking to collaborate on a Data analytics project
+- 📫 Reach me over email @jobytbabu19@gmail.com
